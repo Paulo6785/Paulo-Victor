@@ -15,5 +15,6 @@ Assim podendo me aprimrar tanto profissional quanto pessoalmente, poderei aplica
 ## Contato 📫
 - LinkedIn: [Paulo Victor](https://www.linkedin.com/in/paulo-v-8268b2161/)
 - Email: [paulovictor6785@gmail.com](paulovictor6785@gmail.com)
+- Portfolio: [Made in Bubble] https://portfolio-pvictor-85532.bubbleapps.io/version-test/english_version
 
 Vamos nos conectar e construir algo incrível juntos! 💻✨
